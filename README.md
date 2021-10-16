@@ -1,1 +1,1 @@
-# smrutiranjanmanik.github.io
+# smrutimanik.github.io
